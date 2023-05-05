@@ -14,5 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->blz
-https://media.tenor.com/S_YK6zJwEBQAAAAC/letter-s.gif
-https://media.tenor.com/dahUZmCkbAcAAAAC/agony.gif
+https://media.tenor.com/hVRzRZnx-YsAAAAC/pepe-the-frog-sitting-chillin.gif
